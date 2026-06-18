@@ -14,5 +14,7 @@
 
 **From one weakness was born infinite power.**
 
+**Copyright Warning:**
+All rights reserved. Copying, distributing, or modifying these scripts without the express written permission of the author is prohibited.
 ---
 **This work is protected by copyright. Unauthorized distribution or adaptation is prohibited.**
