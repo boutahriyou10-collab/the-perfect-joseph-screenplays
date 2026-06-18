@@ -4,7 +4,7 @@
 
 **© All Rights Reserved 2026 - Boutahri Productions, Casablanca**
 
-## الأعمال المتوفرة:
+## Available Works:
 
 - [Part 1: Dawn of the Championship](Dawn_of_the_Championship_FULL_SCREENPLAY(1).pdf) — 4h 20m
 - [Part 2: The Devil You Don't Know](Part2_TheDevilYouDontKnow_FINAL.pdf) — 3h 55m
