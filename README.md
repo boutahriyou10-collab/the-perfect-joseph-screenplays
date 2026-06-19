@@ -14,7 +14,11 @@
 
 **From one weakness was born infinite power.**
 
-**Copyright Warning:**
-All rights reserved. Copying, distributing, or modifying these scripts without the express written permission of the author is prohibited.
+**© 2026 Youssef Boutahri. All Rights Reserved**.
+This is an original unpublished screenplay.
+All rights reserved. No part of this script may be reproduced, distributed, or transmitted in any form or by any means without the prior written permission of the author.
+Unauthorized copying, distribution, adaptation, or public performance is strictly prohibited and may result in legal action.
+Boutahri Productions
+Casablanca, Morocco
 ---
 **This work is protected by copyright. Unauthorized distribution or adaptation is prohibited.**
