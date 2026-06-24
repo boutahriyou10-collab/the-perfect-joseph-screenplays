@@ -17,9 +17,11 @@
 A profound Moroccan family story that evolves into an epic multiversal saga. Blending raw emotional realism with grand cinematic spectacle.
 
 ## 🔗 Read on Script Revolution:
-** https://www.scriptrevolution.com/scripts/the-perfect-joseph-and-gumball-the-final-war-a-three-part-cinematic-event **
+https://www.scriptrevolution.com/scripts/the-perfect-joseph-and-gumball-the-final-war-a-three-part-cinematic-event
 https://www.scriptrevolution.com/scripts/the-perfect-joseph-and-gumball-the-breaking-point 
 https://www.scriptrevolution.com/scripts/the-perfect-joseph-and-gumball-the-devil-you-dont-know https://www.scriptrevolution.com/scripts/the-perfect-joseph-and-gumball-dawn-of-the-championship  https://www.scriptrevolution.com/scripts/the-boys-presents-the-collectors-a-multiverse-limited-series
+
+
 **© 2026 Youssef Boutahri - All Rights Reserved**
 
 **© 2026 Youssef Boutahri. All Rights Reserved**.
